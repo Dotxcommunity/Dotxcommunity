@@ -8,5 +8,8 @@
 -    •Advanced Level
      
 - 🚀 Ethical Hacker Empowerment
-- 📫 Join @Dotxcommunity | https://t.me/Dotxcommunity
+
+- 🌐 Join @Dotxcommunity 
+- ✅ Telegram | https://t.me/Dotxcommunity
+- ◀️ Youtube  | https://www.youtube.com/@Dotxcommunity
 
