@@ -1,15 +1,6 @@
-- 👋 Hellow World,
-- 🌐 Welcome to Dotxcommunity - Your Cybersecurity HQ! 🛡️
-- 🛠️ What We Offer:
-- 👨🏻‍💻 Ethical Hacking
-
--    •Begginer Level
--    •Intermediate Level
--    •Advanced Level
-     
-- 🚀 Ethical Hacker Empowerment
+-Join Dotxcommunity for elite ethical hacking insights! 💻 We provide top-tier techniques, tools, and courses to empower your cybersecurity journey.
 
 - 🌐 Join @Dotxcommunity 
-- ✅ Telegram | https://t.me/Dotxcommunity
+- ✅ Telegram | https://t.me/+PfqcISiGzUw2ZDA1
 - ◀️ Youtube  | https://www.youtube.com/@Dotxcommunity
 
